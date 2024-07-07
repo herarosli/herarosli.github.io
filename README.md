@@ -1,2 +1,0 @@
-# HeraRosli.github.io
-Portfolio
